@@ -10,6 +10,6 @@
 
 ## My Discord Server
 [![Discord Banner 1](https://discordapp.com/api/guilds/887701633293766697/widget.png?style=banner3)](https://discord.gg/AfcnrgHcKQ)
-[![Discord Banner 1](https://discordapp.com/api/guilds/724632430102839296/widget.png?style=banner3)](https://discord.gg/NVmgwFMxBF)<br />
+[![Discord Banner 1](https://discordapp.com/api/guilds/1070653823313531000/widget.png?style=banner3)](https://discord.gg/MUtcaZffgf)<br />
 
 </div>
